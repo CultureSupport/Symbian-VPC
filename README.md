@@ -7,4 +7,16 @@ for
 - 40 Gbps
 - 100 GBPs
 
+
+--------------
+
+- World first and only
+
+  Symbian Os fostering its
+  Firt Mobile VPC Cloud
+  Connection 
+
+--------------
+
+
 First App instance Symbian Os To Run 10 , 40 , 100 Gbps Vpc Networks 
